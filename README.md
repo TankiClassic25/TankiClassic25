@@ -7,11 +7,11 @@
 
 - 🔭 I’m currently working on **хэрньою**
 
-- 🌱 I’m currently learning **хэрню**
+- 🌱 I’m currently learning **ты лучше папки своему скажи. скажи папки. шо пиздорасы йвы? ПАПКИ!**
 
-- 👯 I’m looking to collaborate on **хэрня**
+- 👯 I’m looking to collaborate on **попадися!**
 
-- 🤝 I’m looking for help with **хэрньою**
+- 🤝 I’m looking for help with **идите вы к чертовой бабушке. перестаньте сюда ходить.**
 
 - 💬 Ask me about **ТЫ ШО ЕБНУЛСЯ?**
 
@@ -19,7 +19,7 @@
 
 - ⚡ Fun fact **Можно с одной стороны подумать а можно с другой... ПодУмать!**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: УЕУЕУЕ Ы!</h3>
 <p align="left">
 </p>
 
